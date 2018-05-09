@@ -1,2 +1,0 @@
-SV: ÐOÀN TH? THOA
-MSV: 16022131
